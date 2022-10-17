@@ -1,1 +1,1 @@
-https://potatosicle.github.io/Super-Mario-64/
+Play at https://potatosicle.github.io/Super-Mario-64/
